@@ -149,16 +149,15 @@
 
 - オリジナル3Dモデル 「リセ -Lise-」 #MARUBODY [販売ページ](https://booth.pm/ja/items/4390073)
 ![Picture43](https://booth.pximg.net/38d12e48-b117-4086-a5c7-b02cd8f9c952/i/4390073/0bb0d1dd-4f64-4493-bf17-31abbfd113e9.png)
-
+<img src="" width="">
 
 # ワールド
 ## ワールド本体
 
 - Nest [ネスト] VRChat World [販売ページ](https://booth.pm/ja/items/4837001)
-![Picture44](https://booth.pximg.net/d09ee755-d079-4e07-99f2-874e0c58afc3/i/4837001/8600cd66-558c-4437-9b64-f1b2b2f2e245.png)
-
+<img src="https://booth.pximg.net/d09ee755-d079-4e07-99f2-874e0c58afc3/i/4837001/8600cd66-558c-4437-9b64-f1b2b2f2e245.png" width="400">
 
 # その他
 
 - GtTR34 4ドア セダン 3Dモデル 単品・セット販売あり [販売ページ](https://booth.pm/ja/items/4672695)
-![Picture45](https://booth.pximg.net/16b73b90-1b61-45b6-95d5-61b414d80aaf/i/4672695/333a21db-b10a-4493-bcb7-210cb01449fd.png)
+<img src="https://booth.pximg.net/16b73b90-1b61-45b6-95d5-61b414d80aaf/i/4672695/333a21db-b10a-4493-bcb7-210cb01449fd.png" width="50">
