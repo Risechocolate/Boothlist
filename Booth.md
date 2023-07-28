@@ -6,7 +6,8 @@
 
 現状のメインアバターは**"あのんちゃん"**です。
 
-## アバター
+# アバター
+## 衣装
 ### あのん
 
 - 19アバター対応フルコーデ♡zirai spring code [販売ページ](https://booth.pm/ja/items/4672800)
@@ -83,3 +84,34 @@
 
 - 【あのん用】セータービキニ [販売ページ](https://booth.pm/ja/items/3667111)
 ![Picture25](https://booth.pximg.net/4154a860-ebae-4a6d-84ba-676c8f6e44cc/i/3667111/305f7c50-3175-4003-9b46-dd8fd92c96f3.jpg)
+
+
+### メリノ
+- メリノ用衣装)季節の変わり目【PB対応】 [販売ページ](https://booth.pm/ja/items/2779063)
+![Picture26](https://booth.pximg.net/106a9b73-f127-496f-8459-cf9f7a37788c/i/2779063/eaa54a5b-b16a-4b3d-bd81-6b7cc85345e4.png)
+
+- カジュアルジャケット(5アバター対応) [販売ページ](https://booth.pm/ja/items/3560217)
+![Picture26](https://booth.pximg.net/050d636d-d5b3-4ef3-b435-1778a687ae68/i/3560217/df506be4-40f8-4441-93a6-0328e75a3eef.png)
+
+### 桔梗
+- 流行りのビキニ【桔梗 萌 ライム セレスティア衣装】 [販売ページ](https://booth.pm/ja/items/4866933)
+![Picture27](https://booth.pximg.net/38ce0a06-7e57-4eda-bc0c-fd783077e52c/i/4866933/53f3044c-e8db-4b18-805a-46b53f56a5e8.png)
+
+- 【桔梗用】ファイナル・リベリオン [販売ページ](https://booth.pm/ja/items/3944459)
+![Picture28](https://booth.pximg.net/4a8b2e27-d374-4781-866c-9257a10bf56d/i/3944459/52c73eaf-b571-46f1-b544-a4a733a82cb4.png)
+
+- 【桔梗用】動く！開く！DX桔梗ちゃん用ボディスーツ [販売ページ](https://booth.pm/ja/items/4647432)
+![Picture29](https://booth.pximg.net/deec0535-bedb-41bc-b88b-98b11e916561/i/4647432/e502f952-cce2-4c40-b486-6aea35eca547.png)
+
+- 【桔梗,舞夜,Grus対応】ラインジャージ (Line Jersey) [販売ページ](https://booth.pm/ja/items/4648703)
+![Picture30](https://booth.pximg.net/db5b3a26-9499-477c-afa1-6e01450b9321/i/4648703/f693704b-7071-4979-9a22-14e086ed7a0d.png)
+
+- ひるね屋のswim onepeice for Kikyo [販売ページ](https://booth.pm/ja/items/4670098)
+![Picture31](https://booth.pximg.net/4d603a5d-0611-4e3c-833c-41454379f04e/i/4670098/93e45b21-6a90-4e13-9e0d-5e767bc13a65.png)
+
+- Urban Tech Obsidian [販売ページ](https://booth.pm/ja/items/4590436)
+![Picture32](https://booth.pximg.net/f5d1aad1-8436-4e4e-8ebe-fa00ed8bab73/i/4590436/902b319c-b51d-4658-882d-e3b4cfed69f4.png)
+
+- テックパーカベータ(8アバター対応) [販売ページ](https://booth.pm/ja/items/4023741)
+![Picture33](https://booth.pximg.net/050d636d-d5b3-4ef3-b435-1778a687ae68/i/4023741/aa7a6704-25ed-41ec-af73-095051d3cf02.png)
+
