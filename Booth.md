@@ -87,6 +87,7 @@
 
 
 ### メリノ
+
 - メリノ用衣装)季節の変わり目【PB対応】 [販売ページ](https://booth.pm/ja/items/2779063)
 ![Picture26](https://booth.pximg.net/106a9b73-f127-496f-8459-cf9f7a37788c/i/2779063/eaa54a5b-b16a-4b3d-bd81-6b7cc85345e4.png)
 
@@ -94,6 +95,7 @@
 ![Picture26](https://booth.pximg.net/050d636d-d5b3-4ef3-b435-1778a687ae68/i/3560217/df506be4-40f8-4441-93a6-0328e75a3eef.png)
 
 ### 桔梗
+
 - 流行りのビキニ【桔梗 萌 ライム セレスティア衣装】 [販売ページ](https://booth.pm/ja/items/4866933)
 ![Picture27](https://booth.pximg.net/38ce0a06-7e57-4eda-bc0c-fd783077e52c/i/4866933/53f3044c-e8db-4b18-805a-46b53f56a5e8.png)
 
@@ -115,3 +117,48 @@
 - テックパーカベータ(8アバター対応) [販売ページ](https://booth.pm/ja/items/4023741)
 ![Picture33](https://booth.pximg.net/050d636d-d5b3-4ef3-b435-1778a687ae68/i/4023741/aa7a6704-25ed-41ec-af73-095051d3cf02.png)
 
+- 【桔梗ちゃん想定】Hydrangea. [販売ページ](https://booth.pm/ja/items/4552222)
+![Picture34](https://booth.pximg.net/153beee1-9c44-4afe-8a9b-5f30e1576bba/i/4552222/f924c5e9-0144-4cf1-81ae-79052c12f299.png)
+
+- 【桔梗ちゃん想定】Lycoris. [販売ページ](https://booth.pm/ja/items/4399364)
+![Picture35](https://booth.pximg.net/153beee1-9c44-4afe-8a9b-5f30e1576bba/i/4399364/40f95d24-2645-4a56-96f5-7dffb5f72678.png)
+
+- 【7アバター対応】タクティカルメイド (Tactical maid) [販売ページ](https://booth.pm/ja/items/4409363)
+![Picture36](https://booth.pximg.net/70ebf4f0-7a56-45a6-bd50-359d32d604ed/i/4409363/964fe631-ecb2-4e0d-be5f-ecc584dc8f73.png)
+
+- 【14アバター対応】OATH JACKETコーデセット/OATH JACKET [販売ページ](https://booth.pm/ja/items/4469885)
+![Picture37](https://booth.pximg.net/b59839c2-973d-40cb-b7c3-d3f981c699b7/i/4469885/3c3461e1-7a3d-44c9-a029-6be0441455a6.png)
+
+- 胸空きレオタード【桔梗用】[販売ページ](https://booth.pm/ja/items/4955635)
+![Picture38](https://booth.pximg.net/38ce0a06-7e57-4eda-bc0c-fd783077e52c/i/4955635/3250156d-ba94-486b-a29f-2595b7296bae.png)
+
+- 「多数アバター対応」Monochrome Inner [販売ページ](https://booth.pm/ja/items/4548843)
+![Picture39](https://booth.pximg.net/9b92b4aa-727e-4ad3-8a66-111e77c11365/i/4548843/7e4b8a11-5300-4285-8c0c-a33563a2a4ec.png)
+
+- 【桔梗対応】AfternoonChiffon【VRChat】 [販売ページ](https://booth.pm/ja/items/4826686)
+![Picture40](https://booth.pximg.net/12cb4425-06f0-4f49-b533-9c937a42ef2b/i/4826686/8c00898d-39b6-486c-a41e-0ac3c05b3c58.png)
+
+- [6アバター対応]ライフセーバー競泳水着 うるる/エポナ/セレスティア/桔梗/量産型のらきゃっと/猫山苗 [販売ページ](https://booth.pm/ja/items/4135004)
+![Picture41](https://booth.pximg.net/bc8b8fd2-fda2-42e6-9da9-7fdd7fe1e4ca/i/4135004/6ffb4893-b9b9-411f-ba78-30a32ace7c2c.jpg)
+
+- (PB対応) 【桔梗,Kikyo】 ショートレザーアウトフィット short leather outfit [販売ページ](https://booth.pm/ja/items/3953925)
+![Picture42](https://booth.pximg.net/7df29390-fcd0-4496-8c1e-a9e37bcbee13/i/3953925/7fefa091-30b6-4d0a-86c5-78e505555cb9.png)
+
+
+## アバター本体
+
+- オリジナル3Dモデル 「リセ -Lise-」 #MARUBODY [販売ページ](https://booth.pm/ja/items/4390073)
+![Picture43](https://booth.pximg.net/38d12e48-b117-4086-a5c7-b02cd8f9c952/i/4390073/0bb0d1dd-4f64-4493-bf17-31abbfd113e9.png)
+
+
+# ワールド
+## ワールド本体
+
+- Nest [ネスト] VRChat World [販売ページ](https://booth.pm/ja/items/4837001)
+![Picture44](https://booth.pximg.net/d09ee755-d079-4e07-99f2-874e0c58afc3/i/4837001/8600cd66-558c-4437-9b64-f1b2b2f2e245.png)
+
+
+# その他
+
+- GtTR34 4ドア セダン 3Dモデル 単品・セット販売あり [販売ページ](https://booth.pm/ja/items/4672695)
+![Picture45](https://booth.pximg.net/16b73b90-1b61-45b6-95d5-61b414d80aaf/i/4672695/333a21db-b10a-4493-bcb7-210cb01449fd.png)
