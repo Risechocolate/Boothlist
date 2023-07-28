@@ -160,4 +160,4 @@
 # その他
 
 - GtTR34 4ドア セダン 3Dモデル 単品・セット販売あり [販売ページ](https://booth.pm/ja/items/4672695)
-<img src="https://booth.pximg.net/16b73b90-1b61-45b6-95d5-61b414d80aaf/i/4672695/333a21db-b10a-4493-bcb7-210cb01449fd.png" width="50">
+<img src="https://booth.pximg.net/16b73b90-1b61-45b6-95d5-61b414d80aaf/i/4672695/333a21db-b10a-4493-bcb7-210cb01449fd.png" width="400">
