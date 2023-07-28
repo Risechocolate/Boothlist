@@ -10,9 +10,6 @@
 ## 衣装
 ### あのん
 
-- 19アバター対応フルコーデ♡zirai spring code [販売ページ](https://booth.pm/ja/items/4672800)
-<img src="https://booth.pximg.net/c3f76366-e1de-47a7-8415-d476cdd67568/i/4672800/a52eaf92-877e-45b9-bb58-8f7140733bb2.png" width="400">
-
 - 【VRChat想定】Beowulf fantasy【お着替え用】 [販売ページ](https://booth.pm/ja/items/4020071)
 <img src="https://booth.pximg.net/a5f25c74-6fe2-4350-8ae7-8a8622333c7a/i/4020071/01e8ad0a-d866-41fb-a927-45b67eeb9aaa.png" width="400">
 
