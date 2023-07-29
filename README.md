@@ -70,9 +70,6 @@
 - 「あのん」専用【3D衣装モデル】ナイトメア [販売ページ](https://booth.pm/ja/items/3596047)
 <img src="https://booth.pximg.net/006f92f5-6fd7-4014-baea-7bc32e3cf196/i/3596047/8accd5bb-2404-4d08-a3df-2c10c2de6687.png" width="400">
 
-- 『レースの水着』 & 『リング付き水着』 & 『競泳水着』 for Anon『あのん』 [販売ページ](https://booth.pm/ja/items/3587475)
-<img src="https://booth.pximg.net/347c5f46-2015-494c-9b51-13400b4b2842/i/3587475/bbb537fd-9f70-43dd-81ae-6837d5dd97b7.png" width="400">
-
 - ひるね屋の縦セタ for Muromu & ANON　[販売ページ](https://booth.pm/ja/items/3613930)
 <img src="https://booth.pximg.net/4d603a5d-0611-4e3c-833c-41454379f04e/i/3613930/605916dc-496a-4fb7-bbe3-d38bae8ff1e5.png" width="400">
 
