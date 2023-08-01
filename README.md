@@ -10,9 +10,6 @@
 ## 衣装
 ### あのん
 
-- 【VRChat想定】Beowulf fantasy【お着替え用】 [販売ページ](https://booth.pm/ja/items/4020071)
-<img src="https://booth.pximg.net/a5f25c74-6fe2-4350-8ae7-8a8622333c7a/i/4020071/01e8ad0a-d866-41fb-a927-45b67eeb9aaa.png" width="400">
-
 - ブラックビオラ [販売ページ](https://booth.pm/ja/items/4469229)
 <img src="https://booth.pximg.net/2ab954b8-7a2a-4b3e-b378-fe373ff015d7/i/4469229/2252f578-a006-450e-bc4e-c82ecafcfd47.png" width="400">
 
