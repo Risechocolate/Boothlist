@@ -87,9 +87,6 @@
 
 ### 桔梗
 
-- 流行りのビキニ【桔梗 萌 ライム セレスティア衣装】 [販売ページ](https://booth.pm/ja/items/4866933)
-<img src="https://booth.pximg.net/38ce0a06-7e57-4eda-bc0c-fd783077e52c/i/4866933/53f3044c-e8db-4b18-805a-46b53f56a5e8.png" width="400">
-
 - 【桔梗用】ファイナル・リベリオン [販売ページ](https://booth.pm/ja/items/3944459)
 <img src="https://booth.pximg.net/4a8b2e27-d374-4781-866c-9257a10bf56d/i/3944459/52c73eaf-b571-46f1-b544-a4a733a82cb4.png" width="400">
 
