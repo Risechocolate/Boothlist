@@ -134,8 +134,6 @@
 
 ## アバター本体
 
-- オリジナル3Dモデル 「リセ -Lise-」 #MARUBODY [販売ページ](https://booth.pm/ja/items/4390073)
-<img src="https://booth.pximg.net/38d12e48-b117-4086-a5c7-b02cd8f9c952/i/4390073/0bb0d1dd-4f64-4493-bf17-31abbfd113e9.png" width="400">
 
 # ワールド
 ## ワールド本体
