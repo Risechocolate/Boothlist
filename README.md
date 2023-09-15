@@ -87,20 +87,6 @@
 
 ### 桔梗
 
-- 【桔梗用】ファイナル・リベリオン [販売ページ](https://booth.pm/ja/items/3944459)
-<img src="https://booth.pximg.net/4a8b2e27-d374-4781-866c-9257a10bf56d/i/3944459/52c73eaf-b571-46f1-b544-a4a733a82cb4.png" width="400">
-
-- 【桔梗用】動く！開く！DX桔梗ちゃん用ボディスーツ [販売ページ](https://booth.pm/ja/items/4647432)
-<img src="https://booth.pximg.net/deec0535-bedb-41bc-b88b-98b11e916561/i/4647432/e502f952-cce2-4c40-b486-6aea35eca547_base_resized.jpg" width="400">
-
-- 【桔梗,舞夜,Grus対応】ラインジャージ (Line Jersey) [販売ページ](https://booth.pm/ja/items/4648703)
-<img src="https://booth.pximg.net/db5b3a26-9499-477c-afa1-6e01450b9321/i/4648703/f693704b-7071-4979-9a22-14e086ed7a0d.png" width="400">
-
-- ひるね屋のswim onepeice for Kikyo [販売ページ](https://booth.pm/ja/items/4670098)
-<img src="https://booth.pximg.net/4d603a5d-0611-4e3c-833c-41454379f04e/i/4670098/93e45b21-6a90-4e13-9e0d-5e767bc13a65.png" width="400">
-
-- Urban Tech Obsidian [販売ページ](https://booth.pm/ja/items/4590436)
-<img src="https://booth.pximg.net/f5d1aad1-8436-4e4e-8ebe-fa00ed8bab73/i/4590436/902b319c-b51d-4658-882d-e3b4cfed69f4.png" width="400">
 
 - テックパーカベータ(8アバター対応) [販売ページ](https://booth.pm/ja/items/4023741)
 <img src="https://booth.pximg.net/050d636d-d5b3-4ef3-b435-1778a687ae68/i/4023741/aa7a6704-25ed-41ec-af73-095051d3cf02_base_resized.jpg" width="400">
